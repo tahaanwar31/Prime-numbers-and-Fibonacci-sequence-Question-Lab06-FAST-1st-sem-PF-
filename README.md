@@ -1,0 +1,1 @@
+# Prime-numbers-and-Fibonacci-sequence-Question-Lab06-FAST-1st-sem-PF-
